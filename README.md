@@ -1,2 +1,2 @@
-# google-kickstart2020-roundA
+# google-kickstart
 just for having fun. im not good at all. lots of cheating.
